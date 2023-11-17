@@ -3,7 +3,7 @@
 - 🌱 I’m currently learning ...Análise e Desenvolvimento de sistemas
 - 💞️ I’m looking to collaborate on ... no que for preciso para o progresso
 - 📫 How to reach me ...marcos_borges01@hotmail.com
-- (27 99986/0341)
+- (27 99986/0341)(027 99669-5073)
 
 <!---
 marcos015/marcos015 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
